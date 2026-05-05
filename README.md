@@ -5,9 +5,6 @@
 - 💬 Ask me about **Problem Solving**
 
 
-- ⚡ Fun fact **I use data analysis and generate passive income by Investments.**
-
-
 
 ## Navigating my Github 
 
